@@ -1,2 +1,3 @@
-- Hi, I’m @thedenbruh, the bruh momentum
-- BloxyLandia Owner
+- Hi, I’m thedenbruh, the bruh momentum
+
+who cares, lol
