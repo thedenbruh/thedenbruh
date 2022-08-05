@@ -1,3 +1,6 @@
 i am den the bruh
 --
-wait for something epic on my github loool
+i used to be an original tdbdnh owner (tdbdnh.gq)<br>
+got any questions? well, dm this: DenGuy#5348
+
+my typical site: http://tdb.rf.gd
