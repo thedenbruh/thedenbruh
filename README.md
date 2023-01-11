@@ -1,6 +1,6 @@
-i am den the bruh
+i am mr den the worst site maker
 --
-i used to be an original tdbdnh owner (tdbdnh.gq)<br>
-got any questions? well, dm this: DenGuy#5348
+if you ever wonder why my plutonium source suck is literally no PDO thing
 
-my typical site: http://tdb.rf.gd
+have fun
+http://tdb.rf.gd
