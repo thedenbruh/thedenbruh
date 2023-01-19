@@ -1,6 +1,6 @@
 i am mr den the worst site maker
 --
-if you ever wonder why my plutonium source suck is literally no PDO thing
+plutonium is ofc useless, then why tf you want the source of it
 
 have fun
 http://tdb.rf.gd
