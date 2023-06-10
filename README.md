@@ -1,6 +1,7 @@
-i am mr den the worst site maker
+thedenbruh is fucking in the heaven
 --
-plutonium is ofc useless, then why tf you want the source of it
+hello there mr skidders, if you are all wondering where's the<br>
+plutonium src, then here's my answer: it's in development.<br>
 
 have fun
-http://tdb.rf.gd
+[http://tdb.rf.gd](http://mtndew417.serv00.net/)
