@@ -1,6 +1,6 @@
 thedenbruh deez nuts
 --
-tdbdnh-v2 is alive rn, so have the real fun
+byte, stop using my src 🤡
 
  he's the denny bruh, working for tdbdnh (thedenbruh deez nuts hell) for 3 years<br>
  and probably on a watchlist by different people out there.<br><br>
