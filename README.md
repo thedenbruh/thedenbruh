@@ -1,9 +1,7 @@
-skids are back again
---
+## experimenting w/ gdimage on php, expect some funny stuff here
 hi
 
  he's the denny bruh, working for tdbdnh (thedenbruh deez nuts hell) for 3 years <a href="https://mtndew417.serv00.net/3yearsofvirto.php">(it's real now)</a><br>
- and probably on a watchlist by different people out there <br>(it's likely that the revolution hill's p. diddy party owners are watching me).<br><br>
  the stuff this man knows:<br> - PHP (very badly, do not invite him everywhere), <br>- CSS (pretty fine now)<br>- gamemaker (8.1, loser's programming language)
 <br><br>
 <center>"Do not trust Brick Hill Revivals." - Maxed1 from Brick Hill</center><br>
