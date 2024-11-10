@@ -1,4 +1,4 @@
-## experimenting w/ gdimage on php, expect some funny stuff here
+## 2FA enabled, this is gonna survive the november 14th
 hi
 
  he's the denny bruh, working for tdbdnh (thedenbruh deez nuts hell) for 3 years <a href="https://mtndew417.serv00.net/3yearsofvirto.php">(it's real now)</a><br>
