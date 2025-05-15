@@ -1,10 +1,12 @@
-## 2FA enabled, this is gonna survive the november 14th
-hi
-
- he's the denny bruh, working for tdbdnh (thedenbruh deez nuts hell) for 3 years <a href="https://mtndew417.serv00.net/3yearsofvirto.php">(it's real now)</a><br>
+<a href="https://playvirto.site">![asdasdasdad](https://github.com/user-attachments/assets/b9dc8860-f5eb-42b2-a510-c1aa3b8329f4)</a>
+##### hi, i am denny please do not blame me 👋 (you always know who to blame)<br>
+i am probably the one who is a fan of fixing/restoring old gamemaker games<br>
+ Project Owner, virto!team lead, Client developer @ virto! <br>
+ 
  the stuff this man knows:<br> - PHP (very badly, do not invite him everywhere), <br>- CSS (pretty fine now)<br>- gamemaker (8.1, loser's programming language)
-<br><br>
-<center>"Do not trust Brick Hill Revivals." - Maxed1 from Brick Hill</center><br>
+<br>
+<a href="https://mtndew417.serv00.net/3yearsofvirto.php">3 years of virto! development</a><br>
+<center>"Do not trust Brick Hill Revivals." - Maxed1 from Brick Hill</center>
 
 ###### HTML is not a language, but he knows that too.
 
