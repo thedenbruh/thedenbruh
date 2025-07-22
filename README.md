@@ -11,3 +11,4 @@ i am probably the one who is a fan of fixing/restoring old gamemaker games<br>
 ###### HTML is not a language, but he knows that too.
 
 ![ralseismoking](https://github.com/user-attachments/assets/95812bb5-ff48-4847-8184-a014dac16c07) ![tridesium revolution](https://github.com/user-attachments/assets/ef67daf7-0f8c-4bc0-89ac-9378eb092f8d)
+![virto](https://playvirto.site/funnytesting/advstats?id=1&gc1=cc00cc&gc2=ffaa00&type=classic)
