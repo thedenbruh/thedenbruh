@@ -1,7 +1,7 @@
 <a href="https://playvirto.site">![asdasdasdad](https://github.com/user-attachments/assets/b9dc8860-f5eb-42b2-a510-c1aa3b8329f4)</a>
-##### hi, i am denny please do not blame me 👋 (you always know who to blame)<br>
-i am probably the one who is a fan of fixing/restoring old gamemaker games<br>
- Project Owner, virto!team lead, Client developer @ virto! <br>
+##### hi, i am denny (you always know who to blame)<br>
+i am probably going insane<br>
+project owner @ virto! <br>
  
  the stuff this man knows:<br> - PHP (very badly, do not invite him everywhere), <br>- CSS (pretty fine now)<br>- gamemaker (8.1, loser's programming language)
 <br>
